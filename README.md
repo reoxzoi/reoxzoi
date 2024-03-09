@@ -1,2 +1,2 @@
 ### Hi there 🐰
-✉️: <reoxzoi@outlook.com>
+- I'm Rei, a programmer, and maybe a moviegoer.
